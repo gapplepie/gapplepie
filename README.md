@@ -5,7 +5,7 @@ hi!! very boring site; I only have this available for Pony town, so yes you must
 
 
 For info like this, you can go to my strawpage. But if it's too much, I am okay with c+h !!! 
-Just for caution; I'm not good with words, neither am I very social so bare w/ me.
+Just for caution; plz plz.. I am not that very social!! so bare w/ me.
 
 * NOTE: THIS IS JUST FOR A FEW COS ON PT:
   
